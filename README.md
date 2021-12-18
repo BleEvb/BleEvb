@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on some interesting projects. I can't wait to share with you all soon 😃
 
-- 🌱 I am part of the Udacity Blacks in Technology Scholarship program and other programing languages 
+- 🌱 I completed a Udacity Blacks in Technology Scholarship program and I am learning other programing languages while brushing up my other skills
 
 - 😄 Pronouns: She/Her
 
